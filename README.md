@@ -1,1 +1,0 @@
-# jermainelecky.github.io
